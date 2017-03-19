@@ -1,2 +1,22 @@
 # DRPG
 The source code for DRPG
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# LOL U THOT
+U THOT
+AHAH AHA
+AINT NOBODY GETTIN THE SOURCE
